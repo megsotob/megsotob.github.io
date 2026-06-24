@@ -1,1 +1,1 @@
-# megsotobgithub.io
+# megsotob.github.io
